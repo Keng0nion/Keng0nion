@@ -1,8 +1,7 @@
 # 💥🎉Welcome To My Profile🎉💥
 
-⬇️ 点击下方网址进入我的网站 ⬇️
+⬇️ Visit my website below ⬇️
 
 https://keng0nion.github.io/
 
 ⬆️⬆️ Visit my website below ⬆️⬆️
-
