@@ -4,10 +4,3 @@
 
 https://keng0nion.github.io/
 
-
-
-
-#💬：
-
-Instergram：
-https://www.instagram.com/superkengo/
