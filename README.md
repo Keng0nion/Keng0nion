@@ -1,6 +1,19 @@
-# 💥🎉Welcome To My Profile🎉💥
+# 💥🎉 Welcome To My Profile 🎉💥
 
-⬇️ Visit my website below ⬇️
+👋 Hi, I'm Kengo — a Japanese high school student who loves making things.
 
-https://keng0nion.github.io/
+---
 
+## 🌐 My Website
+
+🔗 [keng0nion.github.io](https://keng0nion.github.io/)
+
+---
+
+## 📸 Instagram
+
+🔗 [@superkengo](https://www.instagram.com/superkengo/)
+
+---
+
+✉️ Feel free to reach out — collabs are always welcome!
