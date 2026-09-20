@@ -4,10 +4,9 @@
 
 https://keng0nion.github.io/
 
-⬆️⬆️ Visit my website below ⬆️⬆️
 
-⬇️ Find me on Instagram below ⬇️
 
+
+💬：
+Instergram：
 https://www.instagram.com/superkengo/
-
-⬆️⬆️ Follow me on Instagram ⬆️⬆️
