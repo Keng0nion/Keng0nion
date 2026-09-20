@@ -3,7 +3,7 @@
 👋 Hi, I'm Kengo — a high school student who loves making things.
 
 🎸 Guitar | 🎮 Games & Hatsune Miku | 🛠️ DIY gadget dev
-🇯🇵 Japanese · male · born 2009/2/28
+|🇯🇵 Japanese · male · born 2009/2/28
 🌐 中/EN/日本語 OK | Open to collabs — DM me!
 
 ---
